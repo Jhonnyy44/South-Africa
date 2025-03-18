@@ -8,7 +8,7 @@ But don't lose hope! There is a solution for you - automated trading platforms. 
   [🔥 Explore the ROM Trading app](https://rom-trading.com)
 
 Now, the question is - is it legit? Well, I decided to put it to the test and share my experience with you. In this [**ROM Trading**](https://rom-trading.com/)
- review, I'll cover everything you need to know. 
+ review, I'll cover everything you need to know..
 
 Stay around till the end!
 
